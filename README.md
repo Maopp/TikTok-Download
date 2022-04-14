@@ -3,3 +3,9 @@
 ### 使用步骤：<br>
 1、开启翻墙<br>
 2、下载tiktok直接安装使用，支持换区<br>
+Q群：967445039
+
+
+## 其它相关教程
+
+### TikTok iOS 免拔卡使用方法：https://youtu.be/a0dpTOqV5jk
