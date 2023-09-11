@@ -7,4 +7,4 @@
 
 ## 其它相关教程
 
-### TikTok iOS 免拔卡使用方法：https://youtu.be/ALWpewnbbIQ?si=DNskqtedFRTowL1U
+### TikTok iOS 免拔卡使用方法：https://youtu.be/ALWpewnbbIQ
